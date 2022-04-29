@@ -24,5 +24,3 @@ Fun fact: I like to make reels on instagram
 
 
 
----
-[![](https://visitcount.itsvg.in/api?id=dakshigupta4&icon=0&color=0)](https://visitcount.itsvg.in)
